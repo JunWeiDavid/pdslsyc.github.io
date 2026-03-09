@@ -1,1 +1,1 @@
-# pdsyc..github.io
+# pdsyc.github.io
